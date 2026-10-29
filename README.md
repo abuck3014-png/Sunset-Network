@@ -1,6 +1,1 @@
-ty to 
-amp 
-peak
-silvreen 
-grin
-and a few others that helped me along the way
+SYSTEMYT SAYS HOW THE FUCK DO I MAKE PEOPLE ABLE TO DEPLOY THIS SHIT
